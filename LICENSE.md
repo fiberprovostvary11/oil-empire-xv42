@@ -1,4 +1,4 @@
-
+hidden oil empire Scripts is the best oil empire Script, featuring silent aim and auto-farm. Safe and powerful for all your needs.
 
 
 
